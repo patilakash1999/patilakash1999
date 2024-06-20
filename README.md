@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **akashpatil5820@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xmO4xiOurnfiCGwLRKYikHRjttwH7n43/view?usp=sharing](https://drive.google.com/file/d/1xmO4xiOurnfiCGwLRKYikHRjttwH7n43/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1I0w12sx6kxGPXtRGQhlnhyT6RBhjWWrw/view?usp=sharing](https://drive.google.com/file/d/1I0w12sx6kxGPXtRGQhlnhyT6RBhjWWrw/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
